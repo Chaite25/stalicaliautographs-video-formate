@@ -1,0 +1,1 @@
+# stalicaliautographs-video-formate
